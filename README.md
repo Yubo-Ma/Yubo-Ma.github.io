@@ -1,3 +1,3 @@
-## Welcome to YuboMa's Pages
+## Welcome to My Pages
 
 https://yubo-ma.github.io/
